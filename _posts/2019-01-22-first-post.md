@@ -1,7 +1,8 @@
 ---
-published: true
+layout: post
+title: First post - An example of blogging
+categories: [Misc]
 ---
-# First post - An example of blogging
 
 Welcome to Git Wiki first post!
 
