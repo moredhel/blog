@@ -1,7 +1,7 @@
 ---
-published: true
-tags: [depression]
-categories: [blog, travel]
+layout: post
+categories: [Blog, Travel]
+Title: The Beginning
 ---
 
 Hello there, welcome to my first post about me. I don't really talk about myself, so I intend to try here. It will be a mixture of things ranging from how I feel at a particular time to what I am thinking.
