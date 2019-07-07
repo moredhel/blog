@@ -1,6 +1,9 @@
 #reverio
 # This file contains configuration flags to customize your site
 #
+prose:
+  siteurl: 'http://aoeu.me/blog/'
+  media: /images
 
 # Name of your site (displayed in the header)
 name: Moredhel's Blog
@@ -92,4 +95,3 @@ exclude:
   - LICENSE
   - README.md
   - CNAME
-
