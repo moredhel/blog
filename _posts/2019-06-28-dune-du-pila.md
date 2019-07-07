@@ -19,5 +19,26 @@ We finally arrived at Pyla Camping tired, hungry and ready for an early night. W
 
 ## The Accommodation (and the sand)
 
+We stayed in one of a few campsites called [Pyla Camping](https://pyla-camping.com). It was a pretty decent, if fairly basic campsite with a single, sometimes open, supermarket to-hand. Super being a bit of a stretch.
+We opted for a bungalow option for our stay as we weren't very excited about the prospect of carrying tons of gear down to live in (Tents, cooking equipment, sleeping bags, mattresses). It was a pretty simple affair, two tiny bedrooms with mdf walls and a construction which looked like it would take 4 hours to piece together like a large puzzle but it served its purpose and did so admirably. It even went as far as to be fitted with electricity and a gas oven! It was fitted with most of the mod. cons.
+
+The next two weeks consisted of lots of sleep whenever the wind wasn't good, and trying to bring as much of the dune as we could back into the bungalow. All in all we had a fairly respectable dune of our own by the end of the trip.
+
 ## The Food (Being Vegan)
+
+I'm going to start this off by saying I am definitely 50-100% at fault for the diet that I sustained during this trip.
+
+Listed is a comprehensive list of all the many and varied meals I so carefully planned:
+- Jam sandwiches
+- Vegetarian Pizza
+- [Huel](huel.com)
+- Pasta & Tomato Sauce
+
+Only in France can you fully appreciate French cuisine, and we made a concerted effort to fully delight our taste-buds with the refined flavours that are so well known to the French.
+
+There were definitely options down there! I saw lentils, soups, several different canned beans and a pithy selection of vegetables. Next time I plan to go with a healthy selection of spices and stew up some large curries with planned multi-day meals!
+
 ## The Flying
+
+Alright, so you've trawled through the journey, the accommodation and been shocked by my diet, now let's see why I put myself through this.
+
