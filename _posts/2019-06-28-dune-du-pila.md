@@ -42,3 +42,13 @@ There were definitely options down there! I saw lentils, soups, several differen
 
 Alright, so you've trawled through the journey, the accommodation and been shocked by my diet, now let's see why I put myself through this.
 
+![WhatsApp Image 2019-06-27 at 14.38.41.jpeg]({{site.baseurl}}/_posts/WhatsApp Image 2019-06-27 at 14.38.41.jpeg)
+
+
+This is me ground-handling a 1986 glider on the dune! It was such an awesome experience to be able to fly one of these! And quite a thing to think about how much gliders have changed in the last 25 years. It is definitely way easier to ground-handle and launch, but I did a few 3-5 second flights and it didn't feel like the most safe wing. It felt more like a parachute than anything else.
+
+The flying was really nice and easy, a lovely ridge with decent space and a nice wide lift-band. On the high-wind days it was tons of fun to mess about on the dune, swooping down on the ridge, dolphins, 360s. It was such a great experience for really playing around and getting familiar with flying. I flew so much that I was getting phantom surges of lift when I was lying in bed, an interesting experience that just makes you want to fly even more!
+
+There was a ton of flying, loads of ground-handling and just generally a lot of fun! I really think it's a great place to go with a wing and just mess about, learn more about flying on an intuitive level all with the increased safety of doing it over sand!
+
+Safe flying!
